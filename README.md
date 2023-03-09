@@ -9,7 +9,9 @@ Voor wie contact zoekt (ik moet het inrichten van een teams repo nog even uitzoe
 
 kees.jan.hermans@gmail.com
 
-(Misschien moeten we ook een Google groups aanmaken).
+Er is inmiddels een Google groups: kwcagoraprogrammeursclub@groups.google.com
+
+Meld je aan!
 
 Hoi,
 
